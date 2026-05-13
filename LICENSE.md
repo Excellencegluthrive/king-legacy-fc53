@@ -1,4 +1,4 @@
-
+Download Free premium Script for king legacy for king legacy and experience the ultimate in gameplay enhancement with fly and infinite resources. Designed for gamers who demand
 
 
 
